@@ -12,4 +12,8 @@
 
 ![WhatsApp Image 2021-10-15 at 2 21 32 AM (6)](https://user-images.githubusercontent.com/72688889/145993108-11309ebf-23be-4225-8ba7-5b64a31771d9.jpeg)
 
+**About Us**
+
+![WhatsApp Image 2021-10-15 at 2 21 32 AM (11)](https://user-images.githubusercontent.com/72688889/145993310-da35862e-9951-43af-a0d7-03b335910bf8.jpeg)
+
 
